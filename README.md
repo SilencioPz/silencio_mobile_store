@@ -261,4 +261,4 @@ Feito com café ☕ e paixão por tecnologia em Rondonópolis/MT!
 
 "Porque escolher celular deveria ser baseado em dados, não em marketing!" 📱✨
 
-*Versão 1.0 - Compilado com dados de 30+ modelos reais do mercado* 📊🎯
+*Versão 1.0 - Compilado com dados de 30 modelos reais do mercado* 📊🎯
