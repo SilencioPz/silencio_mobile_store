@@ -1,4 +1,5 @@
 📱 SILENCIO MOBILE STORE
+
 APP DEFINITIVO PARA COMPARAR CELULARES E ENCONTRAR SEU ATUAL E PERFEITO!
 
 (Porque escolher celular não é brincadeira - é investimento! 💰📊)
